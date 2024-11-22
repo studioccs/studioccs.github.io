@@ -1,3 +1,3 @@
 # PLEASE GO TO
-## studioccs.github.io/main.md
+## studioccs.github.io/home.html
 ### THANK YOU!
